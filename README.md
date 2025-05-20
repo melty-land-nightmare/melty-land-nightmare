@@ -3,6 +3,8 @@
 
 i do not bite i swear please feel free to c+h, int/w2int, boop my pixelated pony, ANYTHING!! i hate sitting alone!! just dont be a weirdo 🥲
 
-i follow people from ponytown who has github if they have similar interests/i think are just really cool, i also try to follow back if its possible^^
+i follow people from ponytown who has github if they have similar interests/i think are just really cool, i also try to follow back followers if its possible^^
+
+would be nice and helpful if you used tone tags while interacting with me, otherwise it's also fine if you dont want to!
 
 </p>
