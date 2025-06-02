@@ -7,5 +7,5 @@ i follow people from ponytown who has github if they have similar interests/i th
 
 would be nice and helpful if you used tone tags while interacting with me, otherwise it's also fine if you dont want to!
 
-[![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=0peo08kixd2cq5azcvpkxhvb5&cover_image=false&theme=novatorem&show_offline=false&background_color=121212&interchange=false&bar_color=62a6b7&bar_color_cover=false)](https://github.com/kittinan/spotify-github-profile)
+[![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=0peo08kixd2cq5azcvpkxhvb5&cover_image=false&theme=novatorem&show_offline=false&background_color=121212&interchange=false&bar_color=7eb8dd&bar_color_cover=false)](https://github.com/kittinan/spotify-github-profile)
 </div>
