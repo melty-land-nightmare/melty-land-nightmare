@@ -1,11 +1,23 @@
 <div align="center">
-<img width="250" src="https://github.com/user-attachments/assets/4e682f04-1564-4c8d-ac35-21ac390a13ce">
+<img width="400" src="https://github.com/user-attachments/assets/4adefcad-05f0-43c9-bd8c-06e3deb7a89e">
 
-i do not bite, i swear im a friendly and nice person!! please feel free to c+h, int/w2int, boop my pixelated pony, ANYTHING!! just dont be a weirdo 🥲
+🌧
+_Didn't you see the news today?
+I heard they said it looked like rain_ 
 
-i follow people from ponytown who has github if they have similar interests/i think are just really cool, i also try to follow back followers if its possible^^
+_All the words I left unsaid that day
+Stained the sidewalk drop by drop with gray..._
 
-would be nice and helpful if you used tone tags while interacting with me, otherwise it's also fine if you dont want to!
+✦ i do not bite, i swear im a friendly and nice person!! please feel free to c+h, int/w2int, boop my pixelated pony, ANYTHING!! just dont be a weirdo 🥲
 
-[![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=0peo08kixd2cq5azcvpkxhvb5&cover_image=false&theme=novatorem&show_offline=false&background_color=121212&interchange=false&bar_color=7eb8dd&bar_color_cover=false)](https://github.com/kittinan/spotify-github-profile)
+✦ i follow people from ponytown who has github if they have similar interests/i think are just really cool, i also try to follow back followers if its possible^^
+
+✦ would be nice and helpful if you used tone tags while interacting with me, otherwise it's also fine if you dont want to!
+
+[![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=0peo08kixd2cq5azcvpkxhvb5&cover_image=true&theme=natemoo-re&show_offline=false&background_color=121212&interchange=false&bar_color=7eafce&bar_color_cover=false)](https://github.com/kittinan/spotify-github-profile)
+
+☔ _Rain or shine, I'm by your side -
+So why won't you look my way?_
+
+_The weather forecast's calling for another cloudy day._
 </div>
