@@ -1,4 +1,4 @@
-<p align="center">
+<div align="center">
 <img width="250" src="https://github.com/user-attachments/assets/4e682f04-1564-4c8d-ac35-21ac390a13ce">
 
 i do not bite, i swear im a friendly and nice person!! please feel free to c+h, int/w2int, boop my pixelated pony, ANYTHING!! just dont be a weirdo 🥲
@@ -7,4 +7,5 @@ i follow people from ponytown who has github if they have similar interests/i th
 
 would be nice and helpful if you used tone tags while interacting with me, otherwise it's also fine if you dont want to!
 
-</p>
+[![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=0peo08kixd2cq5azcvpkxhvb5&cover_image=false&theme=novatorem&show_offline=false&background_color=121212&interchange=false&bar_color=62a6b7&bar_color_cover=false)](https://github.com/kittinan/spotify-github-profile)
+</div>
