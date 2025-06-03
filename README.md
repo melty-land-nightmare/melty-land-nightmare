@@ -8,7 +8,7 @@ I heard they said it looked like rain_
 _All the words I left unsaid that day
 Stained the sidewalk drop by drop with gray..._
 
-✦ i do not bite, i swear im a friendly and nice person!! please feel free to c+h, int/w2int, boop my pixelated pony, ANYTHING!! just dont be a weirdo 🥲
+✦ i do not bite, i swear im a friendly and nice person!! please feel free to c+h, int/w2int, boop my pixelated pony, ANYTHING!! i love meeting new people and potentially new friendos - it does take a bit of time for me to get used to new peeps tho
 
 ✦ i follow people from ponytown who has github if they have similar interests/i think are just really cool, i also try to follow back followers if its possible^^
 
