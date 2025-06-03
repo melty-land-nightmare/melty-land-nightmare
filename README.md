@@ -12,7 +12,7 @@ Stained the sidewalk drop by drop with gray..._
 
 ✦ i follow people from ponytown who has github if they have similar interests/i think are just really cool, i also try to follow back followers if its possible^^
 
-✦ please no excessive nsfw/sex jokes when interacting with me, im honestly pretty tired of pretending i dont mind these when in actuality i start feeling very uneasy (and me wanting to leave) ;; im okay with minimal jokes though i guess (just trying to put out boundaries because some ponytowners seriously get quite freaky sometimes /hj)
+✦ please no excessive nsfw/sex jokes when interacting with me, im honestly pretty tired of pretending i dont mind these when in actuality i start feeling very uneasy (and me wanting to leave) ;; im okay with minimal jokes though
 
 [![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=0peo08kixd2cq5azcvpkxhvb5&cover_image=true&theme=natemoo-re&show_offline=false&background_color=121212&interchange=false&bar_color=7eafce&bar_color_cover=false)](https://github.com/kittinan/spotify-github-profile)
 
