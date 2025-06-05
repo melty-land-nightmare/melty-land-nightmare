@@ -14,7 +14,7 @@ Stained the sidewalk drop by drop with gray..._
 
 [![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=0peo08kixd2cq5azcvpkxhvb5&cover_image=true&theme=natemoo-re&show_offline=false&background_color=121212&interchange=false&bar_color=7eafce&bar_color_cover=false)](https://github.com/kittinan/spotify-github-profile)
 
-☔ _Rain or shine, I'm by your side -
+☂ _Rain or shine, I'm by your side -
 So why won't you look my way?_
 
 _The weather forecast's calling for another cloudy day._
