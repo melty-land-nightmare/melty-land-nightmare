@@ -18,4 +18,6 @@ Stained the sidewalk drop by drop with gray..._
 So why won't you look my way?_
 
 _The weather forecast's calling for another cloudy day._
+
+![](https://komarev.com/ghpvc/?username=weather-girl&color=7eafce)
 </div>
