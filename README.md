@@ -1,4 +1,7 @@
 <div align="center">
+
+![](https://komarev.com/ghpvc/?username=weather-girl&color=7eafce)
+  
 <img width="400" src="https://github.com/user-attachments/assets/4adefcad-05f0-43c9-bd8c-06e3deb7a89e">
 
 🌧
@@ -18,6 +21,4 @@ Stained the sidewalk drop by drop with gray..._
 So why won't you look my way?_
 
 _The weather forecast's calling for another cloudy day._
-
-![](https://komarev.com/ghpvc/?username=weather-girl&color=7eafce)
 </div>
