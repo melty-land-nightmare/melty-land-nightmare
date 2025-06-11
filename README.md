@@ -15,6 +15,8 @@ Stained the sidewalk drop by drop with gray..._
 
 ✦ Either a big fat yapper yapping my heart out or quietly sitting in the corner /hj it really just depends on my mood ngl
 
+✦ Im most likely gonna be using cosponies of characters from media im currently hyperfixated in
+
 ✦ i follow people from ponytown who has github if they have similar interests/i think are just really cool, i also try to follow back followers if its possible^^
 
 [![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=0peo08kixd2cq5azcvpkxhvb5&cover_image=true&theme=natemoo-re&show_offline=false&background_color=121212&interchange=false&bar_color=7eafce&bar_color_cover=false)](https://github.com/kittinan/spotify-github-profile)
