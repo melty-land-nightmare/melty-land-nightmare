@@ -1,6 +1,6 @@
 <div align="center">
 
-![](https://komarev.com/ghpvc/?username=weather-girl&color=7eafce)
+![](https://komarev.com/ghpvc/?username=weather-girl&label=drops+of+rain&color=7eafce)
   
 <img width="400" src="https://github.com/user-attachments/assets/4adefcad-05f0-43c9-bd8c-06e3deb7a89e">
 
