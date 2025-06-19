@@ -13,6 +13,8 @@ Stained the sidewalk drop by drop with gray..._
 
 ✦ please dont be scared to int becuz im probably more scared than you !! /hj, but i swear im a friendly and nice person that tries - please feel free to c+h, int/w2int, kiss/boop my pixelated pony, ANYTHING!! i love meeting new people and potentially new friendos to add to my list (*rubs hands evilly*) - it does take a bit of time for me to warm up to new peeps but i promise after a few chats ill eventually get more comfortable !!
 
+✦ i dont think i'd really get along much with dry texters...
+
 ✦ I may be nonverbal or verbal, it really just depends on my mood tbh ^^
 
 ✦ Im most likely gonna be using cosponies of characters from media im currently hyperfixated in
