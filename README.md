@@ -2,7 +2,7 @@
 
 ![](https://komarev.com/ghpvc/?username=weather-girl&label=drops+of+rain&color=7eafce)
   
-<img width="400" src="https://github.com/user-attachments/assets/4adefcad-05f0-43c9-bd8c-06e3deb7a89e">
+<img width="500" src="https://github.com/user-attachments/assets/afcfd83d-3829-4acb-9353-8f583c1a32ba">
 
 🌧
 _Didn't you see the news today?
@@ -25,4 +25,6 @@ Stained the sidewalk drop by drop with gray..._
 So why won't you look my way?_
 
 _The weather forecast's calling for another cloudy day._
+
+<img width="500" src="https://github.com/user-attachments/assets/4adefcad-05f0-43c9-bd8c-06e3deb7a89e">
 </div>
