@@ -6,4 +6,6 @@
 ![image](https://github.com/user-attachments/assets/292688b2-ff58-4c4d-9335-5b93e70c5c32)
 
 hi guys im remaking this, check my strawpage for info
+
+dont rlly use discord much but feel free to ask for my user !
 </div>
