@@ -1,8 +1,8 @@
 <div align="center">
 
-![](https://komarev.com/ghpvc/?username=weather-girl&label=drops+of+rain&color=7eafce)
+![](https://komarev.com/ghpvc/?username=weather-girl&label=drops+of+rain&color=b0132b)
   
-![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=0peo08kixd2cq5azcvpkxhvb5&cover_image=true&theme=natemoo-re&show_offline=false&background_color=121212&interchange=false&bar_color=7eafce&bar_color_cover=false)
+![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=0peo08kixd2cq5azcvpkxhvb5&cover_image=true&theme=natemoo-re&show_offline=false&background_color=121212&interchange=false&bar_color=b0132b&bar_color_cover=false)
 
 ✦ okay i said i was a free source of c+h, but that was kinda a lie- when im with oomfies, please ask for their permission first before cuddling cuz while i like c+h-ing with peeps, im not able to read my friends' minds and they may not be okay with it !! ^^"
 
