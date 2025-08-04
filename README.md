@@ -13,4 +13,6 @@
 ✦ either gonna be silent or yapper mode, it really just depends on my current mood
 
 ✦ feel free to ship int! as long as its not weird....
+
+<img src="https://github.com/user-attachments/assets/c8521429-5b2b-4a06-a1df-d446ac012009" width="150" height="300"/>
 </div>
