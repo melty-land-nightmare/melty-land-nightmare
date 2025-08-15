@@ -8,5 +8,5 @@
 
 im a minor, i dont mind suggestive/flirty jokes around me but if you're an adult, please dont do that to me, even as a joke. (applies to friends ^^) respect my boundaries guysss (and other people too!!)
 
-also no guys im not a yumeshipper i just really like that word and its meaning lol, but i think most of yall are cool tho >>
+also no guys im not a yumeshipper but i think most of yall are cool tho >>
 </div>
