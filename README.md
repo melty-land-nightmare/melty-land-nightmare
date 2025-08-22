@@ -9,4 +9,6 @@
 main fandoms (go int guoys): link click, enstars, tbhx, idv, pjsk, fragaria memories
 
 fandoms im in but iwcuf: alien stage, forsaken, dandy's world
+
+usually nv unless im in a pretty good mood (or im with close friends) !!
 </div>
