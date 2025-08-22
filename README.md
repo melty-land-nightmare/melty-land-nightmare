@@ -10,5 +10,5 @@ main fandoms (go int guoys): link click, enstars, tbhx, idv, pjsk, fragaria memo
 
 fandoms im in but iwcuf: alien stage, forsaken, dandy's world
 
-usually nv unless im in a pretty good mood (or im with close friends) !!
+usually silent unless im in a pretty good mood or im with close friends !!
 </div>
