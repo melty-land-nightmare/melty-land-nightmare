@@ -6,5 +6,7 @@
 
 <img src="https://github.com/user-attachments/assets/95b685fb-79d0-4c07-a718-22a6b1733ff2" width="150" height="200"/>
 
+eng/filipino
+
 usually silent unless im in a pretty good mood or im with close friends !!
 </div>
