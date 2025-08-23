@@ -9,4 +9,6 @@
 eng/filipino
 
 usually silent unless im in a pretty good mood or im with close friends !!
+
+my friends are weird but i like them
 </div>
