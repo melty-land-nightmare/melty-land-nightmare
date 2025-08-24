@@ -1,10 +1,10 @@
 <div align="center">
 
-![](https://komarev.com/ghpvc/?username=weather-girl&label=raindrop&color=76ade8)
+![](https://komarev.com/ghpvc/?username=weather-girl&label=raindrop&color=3aba8f)
   
 ![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=0peo08kixd2cq5azcvpkxhvb5&cover_image=true&theme=natemoo-re&show_offline=false&background_color=121212&interchange=false&bar_color=76ade8&bar_color_cover=false)
 
-<img src="https://github.com/user-attachments/assets/95b685fb-79d0-4c07-a718-22a6b1733ff2" width="150" height="200"/>
+<img src="https://github.com/user-attachments/assets/341e7a92-5df9-4baf-923d-86b783599b3c" width="300" height="450"/>
 
 eng/filipino
 
