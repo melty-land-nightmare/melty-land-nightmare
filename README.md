@@ -11,4 +11,6 @@ main interests rn: tbhx, link click, forsaken, umamusume
 usually silent unless im in a pretty good mood or im with close friends !!
 
 my friends are weird but i like them
+
+no im not a yumeshipper
 </div>
