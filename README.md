@@ -6,7 +6,7 @@
 
 eng/filipino
 
-main interests rn: tbhx, link click, forsaken (iwcuf), umamusume (GO INT maybe,,,,)
+main interests rn: tbhx, link click, forsaken (iwcuf), umamusume
 
 usually silent unless im in a pretty good mood or im with close friends !!
 
