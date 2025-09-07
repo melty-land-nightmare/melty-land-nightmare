@@ -12,4 +12,6 @@ eng/filipino yay
 main interests rn: tbhx, link click (FANS INT FOR THESE TWO PLEASEEEE), forsaken (fandom iwc unless mutuals), dandy's world ig (iwc unless mutuals), project sekai
 
 usually silent unless im in a pretty good mood or im with close friendos
+
+suggest me cosplays to make in my strawp ig i dont knoaw im running out of ideas
 </div>
