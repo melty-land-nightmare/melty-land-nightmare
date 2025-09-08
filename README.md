@@ -11,4 +11,6 @@ main interests rn: tbhx, link click (FANS INT FOR THESE TWO PLEASEEEE), forsaken
 usually silent unless im in a pretty good mood or im with close friendos
 
 suggest me cosplays to make in my strawp ig i dont knoaw im running out of ideas
+
+i sometimes use tone tags (only sometimes gng)
 </div>
