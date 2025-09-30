@@ -1,6 +1,6 @@
 <div align="center">
 
-![](https://komarev.com/ghpvc/?username=weather-girl&label=trust+value&color=7b03fc)
+![](https://komarev.com/ghpvc/?username=weather-girl&label=trust+value&color=b2345b)
 
 ![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=0peo08kixd2cq5azcvpkxhvb5&cover_image=true&theme=natemoo-re&show_offline=false&background_color=121212&interchange=false&bar_color=76ade8&bar_color_cover=false)
 
@@ -10,7 +10,5 @@ main interests rn: tbhx, link click (FANS INT FOR THESE TWO PLEASEEEE), forsaken
 
 usually silent unless im in a pretty good mood or im with close friendos
 
-suggest me cosplays to make in my strawp ig i dont knoaw im running out of ideas
-
-i sometimes use tone tags (only sometimes gng)
+i sometimes use tone tags
 </div>
