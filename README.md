@@ -11,4 +11,7 @@ main interests rn: tbhx, link click (FANS INT FOR THESE TWO PLEASEEEE), forsaken
 usually silent unless im in a pretty good mood or im with close friendos
 
 i sometimes use tone tags
+
+<img width="150" height="150" alt="silly uraran" src="https://github.com/user-attachments/assets/da319e8b-2111-4d2e-ab28-45efa69f98b7" />
+
 </div>
